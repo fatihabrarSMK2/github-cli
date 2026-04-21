@@ -1,1 +1,1 @@
-"Hi im Sygma" 
+Hello, i'm fatihabrar8smkbelajarid.
